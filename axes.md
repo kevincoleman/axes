@@ -19,4 +19,6 @@ One day the merchant’s job took her to the courts of a great ruler. Rememberin
 
 The ruler shared his viewpoint, imparting stories of great wisdom.
 
-His job as ruler of a great and prosperous land had given him many luxuries. He ate whatever food he pleased, wore whatever clothes he wanted, and bowed to no master. Every day his servants waited on him, tending to his every desire.
+His job as ruler of a great and prosperous land had given him many luxuries. He ate whatever food he pleased, wore whatever clothes he liked, and bowed to no master. Every day his servants waited on him, tending to his every desire. He lived without fear or trouble, but his life was not quite perfect.
+
+“I cannot leave this position where people look up to me,” he mused. “Being great in the eyes of others has its own kind of weight. If only my people could see that I just need to let down my guard and be free to roam the earth from time to time. Then I would have the perfect life.”
