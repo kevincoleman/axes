@@ -21,4 +21,7 @@ The ruler shared his viewpoint, imparting stories of great wisdom.
 
 His job as ruler of a great and prosperous land had given him many luxuries. He ate whatever food he pleased, wore whatever clothes he liked, and bowed to no master. Every day his servants waited on him, tending to his every desire. He lived without fear or trouble, but his life was not quite perfect.
 
-“I cannot leave this position where people look up to me,” he mused. “Being great in the eyes of others has its own kind of weight. If only my people could see that I just need to let down my guard and be free to roam the earth from time to time. Then I would have the perfect life.”
+“I cannot leave this position where people look up to me,” he mused. “Being great in the eyes of others has its own kind of weight. I am responsible to answer their needs at all times. If only my people could require less of me. I would spend some time simplifying my activities – then I would have the perfect life.”
+
+Being a rich ruler, he thought to search for someone with a simple life so he might learn from him. He brought in people from all over the land, but found no one with a simple life. Finally, a monk from the mountains came to the ruler, and the ruler asked him how to have a simple life.
+
