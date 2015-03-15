@@ -1,13 +1,13 @@
 Axes
 ====
 
-Once upon a time there lived a man on the edge of a great forest. Each morning he rose, readied himself, and went to the forest to continue his life’s work as a wood smith. He spent long days with his trusty axe cutting down trees to use in making a life for himself. It was a good life; though simple and not lavish. Each day he entered the forest looking for something. Even when he returned home with beautiful and bountiful bundles of wood, he continued to search.
+Once upon a time there lived a man on the edge of a great forest. Each morning he rose, readied himself, and went to the forest to continue his life’s work as a wood smith. He spent long days with his trusty axe cutting down trees to use in making a life for himself. It was a good life, though simple and not lavish. Each day he entered the forest looking for something. Even when he returned home with beautiful and bountiful bundles of wood, he continued to search.
 
-“If only my life had more meaning,” he pondered. “There must be more to life than these endless days of work, and this forest that stretches to the horizon.”
+“If only my life had more meaning,” he mused. “There must be more to life than these endless days of work and this forest that stretches to the horizon.”
 
-Day after day, this discontent grew. He had a routine, and a place in the world, but it did not satisfy him.
+Day after day, his discontent grew. He had a routine, and a place in the world, but they did not satisfy him.
 
-One morning, on his trip into the woods, a traveler passed him on the road. She was apparently wealthy, and carried with her the supplies of a nomadic merchant. He saw her wealth and success, and wondered how she had found such a lucrative path through life. As they stopped and talked with one another, the man thought to question the traveler.
+One morning on his trip into the woods a traveler passed him on the road. She was apparently wealthy, and carried with her the supplies of a nomadic merchant. He saw her wealth and success, and wondered how she had found such a lucrative path through life. As they stopped and talked with one another, the man thought to question the traveler.
 
 The merchant, glad to share her experience, told the wood smith stories of her life.
 
@@ -27,15 +27,15 @@ Being a rich ruler, he began a search for someone who lived peacefully in order 
 
 The monk slowly and thoughtfully answered, and he shared stories from his life in the high mountain monastery.
 
-He spent his days in the heights of the mountain peaks, looking over vast lands and watching storms come and pass. The chipmunks, beetles, and eagles visited him, bringing him stories of the forest below, and he cared for his environment faithfully. He knew no adversity, no trials and no sadness. His life was peaceful and serene, and his sage wisdom remained unobstructed by politics or human squabbles.
+He spent his days in the heights of the mountain peaks, looking over vast lands and watching storms come and pass. The chipmunks, beetles, and eagles visited him, bringing him stories of the forest below. He cared for his environment faithfully. He knew no adversity, no trials and no sadness. His life was peaceful and serene, and his sage wisdom remained unobstructed by politics or petty squabbles.
 
 One evening, as he watched the swallow dive and swoop around the swirling mountain clouds, he wished to himself, “if only I could experience the joy of the swallow as he rides the weather’s wishes. Then I would be content to live for ages, with the joy of youth captured under my wings.”
 
 When the swallow came to visit him that night, he asked it, “how can it be that I have such a peaceful life, but still I long for youth as you have? Can you show me the secret to being happy regardless of age?”
 
-The swallow knew exactly where to take the monk, and together they set out down the mountainside. They traveled down the snowy slopes, across the shattered mountain rocks, and into the evergreens. Walking deeper and deeper into the luminous forest, they came to a solemn place where no sound was heard, and the breeze did not dare to move. The bird stopped, perching on the branch of the oldest tree in the forest. As he leaned in close, the tree stirred, making a sound as soft as that of eyelashes rubbing together. It was nigh impossible to tell if the tree was speaking or only thinking, but never the less its words resounded:
+The swallow knew exactly where to take the monk, and together they set out down the mountainside. They traveled down the snowy slopes, across the shattered mountain rocks, and into the evergreens. Walking deeper and deeper into the luminous forest, they came to a solemn place where no sound was heard, and the breeze did not dare blow. The bird stopped, perching on a branch of the oldest tree in the forest. As he leaned in close, the tree stirred, making a sound as soft as that of eyelashes rubbing together. It was nigh impossible to tell if the tree was speaking or only thinking, but never the less its words could be sensed:
 
-“I have been here longer than any living creature. I have seen this land become all that it is, and I am as content now as I was when I first sprouted. I will share with you the secret to this content. You need only to—”
+“I have been here longer than any living creature. I have seen this land become all that it is, and I am as content now as I was when I first sprouted. I will share with you the secret of my serenity. You need only to—”
 
 *Crack!*
 
